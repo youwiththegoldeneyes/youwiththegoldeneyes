@@ -1,5 +1,5 @@
-## WELCOME O5-13. RETRIEVING DATA, PLEASE WAIT…
-## ██████████▒▒▒▒▒▒▒▒▒▒▒▒▒ 40%
+# WELCOME 'Dr. Lennon ████████'. RETRIEVING DATA, PLEASE WAIT…
+# ██████████▒▒▒▒▒▒▒▒▒▒▒▒▒ 40%
 
 
 ### BEFORE YOU INTERACT…
@@ -28,11 +28,11 @@
 ### EXTRA…
 
 
-Please be aware that `we are a system and we each have our own boundaries` **(most of us collectively sharing similar boundaries)**.
+【**001.**】Please be aware that `we are a system and we each have our own boundaries` **(most of us collectively sharing similar boundaries)**.
 
-`Please be respectful of our host’s IRLs.` if you have **nothing** good to say about IRLs or are going to harass our host for having IRLs then **do not interact.**
+【**002.**】`Please be respectful of our host’s IRLs.` if you have **nothing** good to say about IRLs or are going to harass our host for having IRLs then **do not interact.**
 
-`Our host does not consider their IRLs as delusional`, here is a [source](https://rentry.co/IRLnotdelusional) as to what IRLs are and why they are not delusional.
+【**003.**】`Our host does not consider their IRLs as delusional`, here is a [**SOURCE**](https://rentry.co/IRLnotdelusional) as to what IRLs are and why they may not be delusional.
 
 
 #### ***If you are unsure of who is fronting or what the host's IRL currently is please check our GitHub status or ask.***
