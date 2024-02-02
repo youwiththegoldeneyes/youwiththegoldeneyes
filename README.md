@@ -15,15 +15,24 @@
 
 【**005.**】`Please do not come up and vent/rant to us.` We do not want people, specifically strangers, coming up and then asking to vent/rant on us. **If you need any advice we may or may not be able to give you some, but please refrain from throwing in vents and rants into the mix.**
 
+┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
 ### DO NOT INTERACT IF…
 
 
-**--** You fall under the **basic DNI criteria** :; under 18 years of age :; You are an ERPer :; You **actively** copy other people’s art and/or PonyTown skins or use YouTube tutorial/copypasta skins :; You are in a skin/are in the community(s) of… `Dream/DreamTeam/DSMP, Welcome Home, FNF, Undertale, Yandere Simulator, **any character/game by Gatobob (such as BTD and TPOF), any character/game by Scopophobia Studios (such as John Doe).**`
+【**001.**】You fall under the **Basic DNI Criteria: homophobic, transphobic, pro-endo systems, etc...**
+
+【**002.**】You are under 18 years of age **(and/or lie about your age/being 18+).**
+
+【**003.**】You are an ERPer. 
+
+【**004.**】You **actively** copy other people’s art and/or PonyTown skins or use YouTube tutorial/copypasta skins.
+
+【**005.**】You are in a skin/are in the community(s) of… `Dream/DreamTeam/DSMP, Welcome Home, FNF, Undertale, Yandere Simulator, **any character/game by Gatobob (such as BTD and TPOF), any character/game by Scopophobia Studios (such as John Doe).**`
 
 #### **NOTE: WHAT IS LISTED IN OUR DNI LIST ARE *NOT* TRIGGERS; THEY MAKE US UNCOMFORTABLE, HOWEVER WE ARE NOT TRIGGERED BY ANYTHING ON THE LIST.**
 
-┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
+┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
 ### EXTRA…
 
@@ -37,4 +46,13 @@
 
 #### ***If you are unsure of who is fronting or what the host's IRL currently is please check our GitHub status or ask.***
 
-┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
+┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
+
+### SOCIALS…
+
+
+【**001.**】`Pronouns Page...` Includes IRL names and the emoji that corresponds to that IRL. 
+[**PRONOUNS...**](https://en.pronouns.page/@thosegoldeneyes)
+
+【**002.**】`SCP Personnel File...` Includes information regarding my backstory. 
+[**PERSONNEL FILE...**](https://lennon-personnel-file.carrd.co/)
