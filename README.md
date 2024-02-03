@@ -28,7 +28,7 @@
 
 【**003.**】`You are an ERPer and/or go up to random people asking to ERP with you.` We do not ERP and we find it absolutely horrendous, especially if you are doing it in a public setting; ***NO ONE* signed up to witness you do that shit, and most of us just want to relax or hang out with others, NOT watch you ERP. Take that shit to Party Island or into whispers.**
 
-【**004.**】`You **actively** copy other people’s art and/or PonyTown skins or use YouTube tutorial/copypasta skins.` If you are using tutorial skins to figure out your own style, that's alright (as long as you state it is for that reason). If you use tutorial skins just because *"ooh pretty skin! it'll make me look like I know how to make skins!"* then yeah, no... **We'd rather see more originality/skins made by the person themself rather than a copy-and-pasted skin from a YouTube tutorial that gives you the codes & where to place them.**
+【**004.**】`You **actively** copy other people’s art and/or PonyTown skins or use YouTube tutorial/copypasta skins.` Using tut skins to develop your own style is fine, just not when you use it because *"Ooh pretty skin! It'll make me look like I know how to make skins!"*
 
 【**005.**】`You are in a skin/are in the community(s) of…` **Dream/DreamTeam/DSMP, Welcome Home, FNF, Undertale, Yandere Simulator, *any character/game by Gatobob (such as BTD and TPOF), any character/game by Scopophobia Studios (such as John Doe).*** Simple enough, we do not wish to interact with people in these communities/skins.
 
