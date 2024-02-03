@@ -15,20 +15,24 @@
 
 【**005.**】`Please do not come up and vent/rant to us.` We do not want people, specifically strangers, coming up and then asking to vent/rant on us. **If you need any advice we may or may not be able to give you some, but please refrain from throwing in vents and rants into the mix.**
 
+【**006.**】`Do not come up to us with discourse of any type.` We do not wish to engage in any discourse, whether it be related to a content creator, a specific PonyTown name-tag, etc., especially if it involves harassing/putting down individuals who like a specific content creator or use a specific name-tag that is considered "controversial".
+
 ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
 ### DO NOT INTERACT IF…
 
 
-【**001.**】You fall under the **Basic DNI Criteria: homophobic, transphobic, pro-endo systems, etc...**
+【**001.**】`You fall under the Basic DNI Criteria:` **homophobic, transphobic, pro-endo systems, etc...**
 
-【**002.**】You are under 18 years of age **(and/or lie about your age/being 18+).**
+【**002.**】`You are under 18 years of age (and/or lie about your age or being 18+).` We do not wish to interact with those under 18. **If you lie about being 18+ or older than you really are then you don't deserve our trust.**
 
-【**003.**】You are an ERPer and/or go up to random people asking to ERP with you. 
+【**003.**】`You are an ERPer and/or go up to random people asking to ERP with you.` We do not ERP and we find it absolutely horrendous, especially if you are doing it in a public setting; ***NO ONE* signed up to witness you do that shit, and most of us just want to relax or hang out with others, NOT watch you ERP. Take that shit to Party Island or into whispers.**
 
-【**004.**】You **actively** copy other people’s art and/or PonyTown skins or use YouTube tutorial/copypasta skins.
+【**004.**】`You **actively** copy other people’s art and/or PonyTown skins or use YouTube tutorial/copypasta skins.` If you are using tutorial skins to figure out your own style, that's alright (as long as you state it is for that reason). If you use tutorial skins just because *"ooh pretty skin! it'll make me look like I know how to make skins!"* then yeah, no... **We'd rather see more originality/skins made by the person themself rather than a copy-and-pasted skin from a YouTube tutorial that gives you the codes & where to place them.**
 
-【**005.**】You are in a skin/are in the community(s) of… `Dream/DreamTeam/DSMP, Welcome Home, FNF, Undertale, Yandere Simulator, **any character/game by Gatobob (such as BTD and TPOF), any character/game by Scopophobia Studios (such as John Doe).**`
+【**005.**】`You are in a skin/are in the community(s) of…` **Dream/DreamTeam/DSMP, Welcome Home, FNF, Undertale, Yandere Simulator, *any character/game by Gatobob (such as BTD and TPOF), any character/game by Scopophobia Studios (such as John Doe).*** Simple enough, we do not wish to interact with people in these communities/skins.
+
+【**006.**】`You engage in discourse of any type...` **content-creator, PonyTown name-tags, etc...** `and/or go out to harass/put down any individual over liking said content-creator(s) or for using a name-tag that's labelled as "controversial".`
 
 #### **NOTE: WHAT IS LISTED IN OUR DNI LIST ARE *NOT* TRIGGERS; THEY MAKE US UNCOMFORTABLE, HOWEVER WE ARE NOT TRIGGERED BY ANYTHING ON THE LIST.**
 
