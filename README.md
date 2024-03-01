@@ -47,6 +47,8 @@
 
 【**003.**】`Our host does not consider their IRLs as delusional`, here is a [**SOURCE**](https://rentry.co/IRLnotdelusional) as to what IRLs are and why they may not be delusional.
 
+【**004.**】Given the recent light of Wilbur Soot's actions and what he has done to people, we would like to make it clear that `NONE OF US, nor our Wilbur introject, condones CC!Wilbur's actions`; our Wilbur has stated that he wishes to separate ties with his source as best as he can and that users are aware that he **DOES NOT** support his source. Again, `we DO NOT condone Wilbur Soot's actions and we DO NOT support him or his music.`
+
 
 #### ***If you are unsure of who is fronting or what the host's IRL currently is please check our GitHub status or ask.***
 
