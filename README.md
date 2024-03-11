@@ -11,7 +11,7 @@
 
 【**003.**】`Do not cuddle/hide behind us if you are a stranger.` We do not have C+H in our names and we do not feel comfortable when randos cuddle with us. **If you need to be hidden, please ask to hide behind us first.**
 
-【**004.**】`Do not sit too close to us if you are a stranger.` We will move away if we do not feel comfortable, please take this as a sign to keep your distance.
+【**004.**】`Do not sit too close to us if you are a stranger.` We will move away if we do not feel comfortable, please take this as a sign to keep your distance. If we are comfortable with you we may sit near you.
 
 【**005.**】`Please do not come up and vent/rant to us.` We do not want people, specifically strangers, coming up and then asking to vent/rant on us. **If you need any advice we may or may not be able to give you some, but please refrain from throwing in vents and rants into the mix.**
 
@@ -24,15 +24,15 @@
 
 【**001.**】`You fall under the Basic DNI Criteria:` **homophobic, transphobic, pro-endo systems, etc...**
 
-【**002.**】`You are under 18 years of age (and/or lie about your age or being 18+).` We do not wish to interact with those under 18. **If you lie about being 18+ or older than you really are then you don't deserve our trust.**
+【**002.**】`You are under 17 years of age (and/or lie about your age or being 18+).` We do not wish to interact with those under 17. **If you lie about being 18+ or older than you really are then you don't deserve our trust.**
 
-【**003.**】`You are an ERPer and/or go up to random people asking to ERP with you.` We do not ERP and we find it absolutely horrendous, especially if you are doing it in a public setting; ***NO ONE* signed up to witness you do that shit, and most of us just want to relax or hang out with others, NOT watch you ERP. Take that shit to Party Island or into whispers.**
+【**003.**】`You are an ERPer and/or go up to random people asking to ERP with you.` We do not ERP and we find it disgusting, especially if you are doing it in a public setting. **Take your ERP to party island or whispers.**
 
-【**004.**】`You **actively** copy other people’s art and/or PonyTown skins or use YouTube tutorial/copypasta skins.` Using tut skins to develop your own style is fine, just not when you use it because *"Ooh pretty skin! It'll make me look like I know how to make skins!"*
+【**004.**】`You **actively** copy other people’s art and/or PonyTown skins or use YouTube tutorial/copypasta skins.` Using tut skins to develop your own style is alright with us as long as you state you're using them to help improve your style/skin-making.
 
-【**005.**】`You are in a skin/are in the community(s) of…` **Dream/DreamTeam/DSMP, Wilbur Soot, Welcome Home, FNF, Undertale, Yandere Simulator, *any character/game by Gatobob (such as BTD and TPOF), any character/game by Scopophobia Studios (such as John Doe).*** Simple enough, we do not wish to interact with people in these communities/skins; `exceptions are Introjects/Fictives/Factives.`
+【**005.**】`You are in a skin/are in the community(s) of…` ***Dream/DreamTeam/DSMP, Wilbur Soot*, Welcome Home, FNF, Undertale, *Yandere Simulator, any character/game by Gatobob (such as BTD and TPOF), any character/game by Scopophobia Studios (such as John Doe).*** Simple enough, we do not wish to interact with people in these communities/skins; `exceptions are Introjects/Fictives/Factives.`
 
-【**006.**】`You engage in discourse of any type...` **content-creator, PonyTown name-tags, etc...** `and/or go out to harass/put down any individual over liking said content-creator(s) or for using a name-tag that's labelled as "controversial".`
+【**006.**】`You engage in discourse of any type...` **content-creator, PonyTown name-tags, etc...** `and/or go out to harass/put down any individual over liking said content-creator(s) or for using a name-tag that's labelled as "controversial".` Unless they like/support a content creator that is a bad person/criminal... in which case please make them aware that their content-creator is a bad person.
 
 #### **NOTE: WHAT IS LISTED IN OUR DNI LIST ARE *NOT* TRIGGERS; THEY MAKE US UNCOMFORTABLE, HOWEVER WE ARE NOT TRIGGERED BY ANYTHING ON THE LIST.**
 
