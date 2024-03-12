@@ -60,5 +60,9 @@
 【**001.**】`Pronouns Page...` Includes IRL names and the emoji that corresponds to that IRL. 
 [**PRONOUNS...**](https://en.pronouns.page/@thosegoldeneyes)
 
-【**002.**】`SCP Personnel File...` Includes information regarding my backstory. 
+【**002.**】`Rentry...` Includes basic information / what to be aware of. 
+[**PERSONNEL FILE...**](https://rentry.co/youwiththegoldeneyes)
+
+【**003.**】`SCP Personnel File...` Includes information regarding my backstory. 
 [**PERSONNEL FILE...**](https://lennon-personnel-file.carrd.co/)
+
