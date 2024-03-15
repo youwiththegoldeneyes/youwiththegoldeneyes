@@ -5,7 +5,7 @@
 ### BEFORE YOU INTERACT…
 
 
-【**001.**】`Please refrain from actively engaging with us via roleplaying or acting as a character from a shared source.` Just because we may be in a skin of a source that you know of does not mean we will roleplay with you; typically the skin we are using is likely who is fronting. **Don't take it that just because we are a system/introjects/IRLs that we will act just like the source we are from; we aren't like our sources.**
+【**001.**】`Please refrain from actively engaging with us via roleplaying or acting as a character from a shared source.` Just because we may be in a skin of a source that you know of does not mean we will roleplay with you; typically the skin we are using is likely who is fronting. Plus we don't roleplay anymore.
 
 【**002.**】`If you are a minor/under 18, refrain from making statements or using compliments such as “hot” or “attractive” when referring to us.` **We are bodily 18+ and this genuinely makes us uncomfortable.**
 
@@ -43,11 +43,13 @@
 
 【**001.**】Please be aware that `we are a system and we each have our own boundaries` **(most of us collectively sharing similar boundaries)**.
 
-【**002.**】`Please be respectful of our host’s IRLs.` if you have **nothing** good to say about IRLs or are going to harass our host for having IRLs then **do not interact.**
+【**002.**】`Don't assume that our introjects will act like their source...` **They are not like their source and should be treated as individual people.**
 
-【**003.**】`Our host does not consider their IRLs as delusional`, here is a [**SOURCE**](https://rentry.co/IRLnotdelusional) as to what IRLs are and why they may not be delusional.
+【**003.**】`Please be respectful of our host’s IRLs.` if you have **nothing** good to say about IRLs or are going to harass our host for having IRLs then **do not interact.**
 
-【**004.**】Given the recent light of Wilbur Soot's actions and what he has done to people, we would like to make it clear that `NONE OF US, nor our Wilbur introject, condones CC!Wilbur's actions`; our Wilbur has stated that ***he wishes to separate ties with his source as best as he can*** and that users are aware that he **DOES NOT** support his source, ***nor is he anything like his source***. Again, `we DO NOT condone Wilbur Soot's actions and we DO NOT support him or his music.` Alice and Shelby deserve all the support they can get, as well as other victims who have been abused.
+【**004.**】`Our host does not consider their IRLs as delusional`, here is a [**SOURCE**](https://rentry.co/IRLnotdelusional) as to what IRLs are and why they may not be delusional.
+
+【**005.**】Given the recent light of Wilbur Soot's actions and what he has done to people, we would like to make it clear that `NONE OF US, nor our Wilbur introject, condones CC!Wilbur's actions`; our Wilbur has stated that ***he wishes to separate ties with his source as best as he can*** and that users are aware that he **DOES NOT** support his source, ***nor is he anything like his source***. Again, `we DO NOT condone Wilbur Soot's actions and we DO NOT support him or his music.` Alice and Shelby deserve all the support they can get, as well as other victims who have been abused.
 
 
 #### ***If you are unsure of who is fronting or what the host's IRL currently is please check our GitHub status or ask.***
