@@ -30,7 +30,7 @@
 
 【**004.**】`You **actively** copy other people’s art and/or PonyTown skins or use YouTube tutorial/copypasta skins.` Using tut skins to develop your own style is alright with us as long as you state you're using them to help improve your style/skin-making.
 
-【**005.**】`You are in a skin/are in the community(s) of…` ***Dream/DreamTeam/DSMP, Wilbur Soot*, Welcome Home, FNF, Undertale, *Yandere Simulator, any character/game by Gatobob (such as BTD and TPOF), any character/game by Scopophobia Studios (such as John Doe).*** `Exceptions are Introjects/Fictives/Factives.`
+【**005.**】`You are in a skin/are in the community(s) of…` ***Dream/DreamTeam/DSMP, Wilbur Soot, Yandere Simulator, any character/game by Gatobob (such as BTD and TPOF), any character/game by Scopophobia Studios (such as John Doe).*** `Exceptions are Introjects/Fictives/Factives.`
 
 【**006.**】`You engage in discourse of any type...` **content-creator, PonyTown name-tags, etc...** `and/or go out to harass/put down any individual over liking said content-creator(s) or for using a name-tag that's labelled as "controversial".` Unless they like/support a content creator that is a bad person/criminal... in which case please make them aware that their content-creator is a bad person.
 
