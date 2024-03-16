@@ -5,7 +5,7 @@
 ### BEFORE YOU INTERACT…
 
 
-【**001.**】`Please refrain from actively engaging with us via roleplaying or acting as a character from a shared source.` Just because we may be in a skin of a source that you know of does not mean we will roleplay with you; typically the skin we are using is likely who is fronting. Plus we don't roleplay anymore.
+【**001.**】`Please refrain from actively engaging with us via roleplaying or acting as a character from a shared source.` Just because we may be in a skin of a source that you know of **does not** mean we will roleplay with you; typically the skin we are using is likely who is fronting/what the host's IRL is currently.
 
 【**002.**】`If you are a minor/under 18, refrain from making statements or using compliments such as “hot” or “attractive” when referring to us.` **We are bodily 18+ and this genuinely makes us uncomfortable.**
 
