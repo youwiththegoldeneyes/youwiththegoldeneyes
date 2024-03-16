@@ -43,7 +43,7 @@
 
 【**001.**】Please be aware that `we are a system and we each have our own boundaries` *(most of us collectively share the same boundaries)*.
 
-【**002.**】`Don't assume that our introjects will act like their source...` **Most of them are NOT exactly like their source and will not act like it.**
+【**002.**】`Don't assume that our introjects will act like their source...` **All of them are not EXACTLY like their source and they will not act like it.**
 
 【**003.**】`Please be respectful of our host’s IRLs.` if you have **nothing** good to say about IRLs or are going to harass our host for having IRLs then **do not interact.**
 
