@@ -5,15 +5,15 @@
 ### BEFORE YOU INTERACT…
 
 
-【**001.**】`Please refrain from actively engaging with us via roleplaying or acting as a character from a shared source.` Just because we may be in a skin of a source that you know of **does not** mean we will roleplay with you; typically the skin we are using is likely who is fronting/what the host's IRL is currently.
+【**001.**】`Please refrain from actively engaging with us via roleplaying or acting as a character from a shared source.` Just because we may be in a skin of a source that you know of **does not** mean we will roleplay with you. Typically, the skin we are using is likely who is fronting/what the host's IRL is currently.
 
-【**002.**】`If you are a minor/under 18, refrain from making statements or using compliments such as “hot” or “attractive” when referring to us.` **We are bodily 18+ and this genuinely makes us uncomfortable.**
+【**002.**】`Refrain from making statements or using compliments such as “hot” or “attractive” when referring to us.` **We genuinely feel uncomfortable being called these things.**
 
 【**003.**】`Do not cuddle/hide behind us if you are a stranger.` We do not have C+H in our names and we do not feel comfortable when randos cuddle with us. **If you need to be hidden, please ask to hide behind us first.**
 
 【**004.**】`Do not sit next to us if you are a stranger.` We will move away if we do not feel comfortable, please take this as a sign to keep your distance. If we are comfortable with you we may sit near you.
 
-【**005.**】`Please do not come up and vent/rant to us.` We do not want people, specifically strangers, coming up and then asking to vent/rant on us. **If you need any advice we may or may not be able to give you some, but please refrain from throwing in vents and rants into the mix.**
+【**005.**】`Please do not come up and vent/rant to us.` We do not want people, specifically strangers, coming up and then asking to vent/rant on us. **If you need any advice we may or may not be able to give you some, but please refrain from throwing in vents and rants.**
 
 ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
@@ -30,7 +30,7 @@
 
 【**005.**】`You are in a skin/are in the community(s) of…` ***Dream/DreamTeam/DSMP, Wilbur Soot, Yandere Simulator, any character/game by Gatobob (such as BTD and TPOF), any character/game by Scopophobia Studios (such as John Doe).*** `Exceptions are Introjects/Fictives/Factives.`
 
-【**006.**】`You engage in discourse of any type...` **content-creator, PonyTown name-tags, etc...** `and/or go out to harass/put down any individual over liking said content-creator(s) or for using a name-tag that's labelled as "controversial".` Unless they like/support a content creator that is a bad person/criminal... in which case please make them aware that their content-creator is a bad person.
+【**006.**】`You engage in discourse of any type...` **content-creator, PonyTown name-tags, etc...** `and/or go out to harass/put down any individual over liking said content-creator(s) or for using a nametag that's labelled as "controversial".` Unless they like/support a content creator that is a bad person/criminal... in which case please make them aware that their content-creator is a bad person.
 
 #### **NOTE: WHAT IS LISTED IN OUR DNI LIST ARE *NOT* TRIGGERS; THEY MAKE US UNCOMFORTABLE, HOWEVER WE ARE NOT TRIGGERED BY ANYTHING ON THE LIST.**
 
