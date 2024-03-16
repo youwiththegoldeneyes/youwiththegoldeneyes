@@ -11,11 +11,9 @@
 
 【**003.**】`Do not cuddle/hide behind us if you are a stranger.` We do not have C+H in our names and we do not feel comfortable when randos cuddle with us. **If you need to be hidden, please ask to hide behind us first.**
 
-【**004.**】`Do not sit too close to us if you are a stranger.` We will move away if we do not feel comfortable, please take this as a sign to keep your distance. If we are comfortable with you we may sit near you.
+【**004.**】`Do not sit next to us if you are a stranger.` We will move away if we do not feel comfortable, please take this as a sign to keep your distance. If we are comfortable with you we may sit near you.
 
 【**005.**】`Please do not come up and vent/rant to us.` We do not want people, specifically strangers, coming up and then asking to vent/rant on us. **If you need any advice we may or may not be able to give you some, but please refrain from throwing in vents and rants into the mix.**
-
-【**006.**】`Do not come up to us with discourse of any type.` We do not wish to engage in any discourse, whether it be related to a content creator, a specific PonyTown name-tag, etc., especially if it involves harassing/putting down individuals who like a specific content creator or use a specific name-tag that is considered "controversial".
 
 ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
 
