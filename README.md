@@ -34,6 +34,8 @@
 
 【**006.**】`You engage in discourse of any type...` **content-creator, PonyTown nametags, etc...** `and/or go out to harass/put down any individual over liking said content-creator(s) or for using a nametag that's labelled as "controversial".` Unless they like/support a content creator that is a bad person/criminal... in which case please make them aware that their content-creator is a bad person.
 
+【**007.**】`You think it is fun/funny to break people's boundaries for ANY given reason.` People have boundaries for a reason and **you should respect those boundaries REGARDLESS of what you think.**
+
 #### **NOTE: WHAT IS LISTED IN OUR DNI LIST ARE *NOT* TRIGGERS; THEY MAKE US UNCOMFORTABLE, HOWEVER WE ARE NOT TRIGGERED BY ANYTHING ON THE LIST.**
 
 ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
